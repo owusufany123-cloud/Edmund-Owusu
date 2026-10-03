@@ -1,2 +1,2 @@
 # Edmund-Owusu
-Am a website builder so contacte and let's make a professional website.
+Am a website builder so contact and let's make a professional website.
